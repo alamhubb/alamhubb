@@ -1,6 +1,4 @@
-### alamhubb Personal Diary
-
-#### Personal Introduction
+### alamhubb profile
 
 意识形态，Ideology： ⭐⭐⭐⭐⭐
 价值观，Values： ⭐⭐⭐⭐⭐
